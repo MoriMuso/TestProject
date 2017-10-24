@@ -1,2 +1,1 @@
-‰‚ß‚Ä‚ÌGitHub
-‚ ‚è‚ª‚Æ‚¤masu_oji
+taki kun kimoti ga warui 
